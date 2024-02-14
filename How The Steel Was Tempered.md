@@ -1,6 +1,6 @@
 
 ---
-How The Steel Was Tempered钢铁是怎样炼成的_章节列表
+How The Steel Was Tempered
 ===
 
 
