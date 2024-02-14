@@ -1,5 +1,6 @@
-# HOW-THE-STEEL-WAS-TEMPERED-In-Chinese
+# How-The-Steel-Was-Tempered-in-bilingual
 钢铁是怎样炼成的_在线阅读
+
 ---
 钢铁是怎样炼成的
 ===
